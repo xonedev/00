@@ -5,15 +5,15 @@ date: 2017-09-11 12:48:00 Z
 
 Money = Energy.
 
-Plain and simple. Human, animal and mineral energy is converted into money through work or commodity. Soul-spirit matrix is turned into zero's and one's.
+Plain and simple. Human, animal and mineral energy is converted into financial energy through physical labour or industrial process. Soul-spirit matrix is turned into zero's and one's (or paper).
 
-Okay now that we have that out the way. Let's determine how much we need, given three scenarios:
+*Okay now that we have that out the way, let's determine how much we need, given three scenarios:*
 
-1) A person who likes to keep things simple, has basic material needs and doesn't fuss too much about living it large.
+**1) A person who likes to keep things simple, has basic material needs and doesn't fuss too much about living it large.
 2) A person with ambition that wants to make an impact in the world.
-3) Egomaniacs that want to completely take over the world, for whatever reason*.
+3) Egomaniacs that want to completely take over the world, for whatever reason.**
 
-This post is mostly concerned with #2 & #3.
+This post is mostly concerned with **#2** & **#3**.
 The three cases presented have vastly different energy requirements. The difference between #3 & #2 is much larger than between #2 & #1.
 
 Do we need to be billionaires or trillionaires to make a big impact? At what point do the numbers start to become irrelevant? 
