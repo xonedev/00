@@ -1,7 +1,6 @@
 ---
 title: philanthropy 2.0
 date: 2017-09-11 12:35:00 Z
-permalink: "/posts/philanthropy-2.0"
 categories:
 - business philosophy
 tags:
