@@ -3,7 +3,7 @@ title: What is money and how much do we need?
 date: 2017-09-11 12:48:00 Z
 ---
 
-Money = Energy.
+***Money = Energy.***
 
 Plain and simple. Human, animal and mineral energy is converted into financial energy through physical labour or industrial process. Soul-spirit matrix is turned into zero's and one's (or paper).
 
