@@ -5,7 +5,7 @@ date: 2017-09-11 12:48:00 Z
 
 ***Money = Energy.***
 
-Plain and simple. Human, animal and mineral energy is converted into financial energy through physical labour or industrial process. Soul-spirit matrix is turned into zero's and one's (or paper).
+Plain and simple. Human, animal and mineral energy is converted into financial energy through physical labour or industrial process. Soul-spirit matrix is turned into zero's and one's (or paper). In some cases, no input is required, the energy just appears as if by magic (inflation).
 
 *Okay now that we have that out the way, let's determine how much we need, given three scenarios:*
 
