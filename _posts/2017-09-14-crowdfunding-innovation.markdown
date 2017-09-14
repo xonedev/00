@@ -1,8 +1,6 @@
 ---
-title: crowdfunding innovation
+title: funding a tech startup
 date: 2017-09-14 11:01:00 Z
 ---
 
-I'll soon be launching a crowdfunding campaign to fund technology development.
-
-More info coming shortly
+Currently deciding between ***crowdfunding*** or launching an ***ICO*** for a technology incubator.
